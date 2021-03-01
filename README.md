@@ -7,3 +7,5 @@ This is a cool thought.
 I love both tho LOL
 
 I never thought about it like that.
+
+I agree. Although chicken nuggets to me are juicier.
