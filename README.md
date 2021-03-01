@@ -8,4 +8,8 @@ I love both tho LOL
 
 I never thought about it like that.
 
+
 I agree. Although chicken nuggets to me are juicier.
+
+ppl that think different r racist 
+
