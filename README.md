@@ -14,3 +14,4 @@ I agree. Although chicken nuggets to me are juicier.
 
 ppl that think different r racist 
 
+:D :D
